@@ -6,4 +6,4 @@
 https://quizlet.com/user/leejiwon_kor/folders/137009237?i=62pjhe&x=1xqt
 
 
-틀린부분 발견시 연락 바람 leejiwon.kor@gmail.com
+틀린 부분 발견 시 연락 바람 leejiwon.kor@gmail.com
